@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @pankajakshanr88
-- 👀 I’m interested in ...Prdocut, Data, users and technology.
+- 👀 I’m interested in ...Product, Data, users, and technology.
 - 🌱 I’m currently learning ...Cloud computing.
 - 📫 How to reach me ...pankajakshan.ramaswamy@gmail.com
 
